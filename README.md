@@ -14,4 +14,4 @@ Hi there 👋. I’m Moustafa Elboghdady, a skilled and results-driven developer
 ## Get in touch :coffee:
 
 - [Whatsapp](https://wa.link/ihz2r9)
-- [LinkedIn]([https://www.linkedin.com/in/sagarviradiya](https://www.linkedin.com/in/moustafa-elboghdady-a55a92289/))
+- [LinkedIn](https://www.linkedin.com/in/sagarviradiya](https://www.linkedin.com/in/moustafa-elboghdady-a55a92289/)
